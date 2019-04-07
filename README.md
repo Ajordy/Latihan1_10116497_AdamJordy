@@ -1,0 +1,1 @@
+# Latihan1_10116497_AdamJordy
